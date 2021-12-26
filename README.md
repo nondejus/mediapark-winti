@@ -1,1 +1,0 @@
-# mediapark-winti
